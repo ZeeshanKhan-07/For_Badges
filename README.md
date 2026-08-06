@@ -1,3 +1,2 @@
 # For_Badges
-Just for getting the badges
-Try Again
+Just got 1 badge in my achievement section
